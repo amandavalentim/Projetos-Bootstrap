@@ -1,5 +1,5 @@
 
-<img height="350em" src="https://c.tenor.com/E_z_0ENSscoAAAAC/gato-corazon.gif">
+<img src="https://c.tenor.com/E_z_0ENSscoAAAAM/gato-corazon.gif">
 
 ###
 
